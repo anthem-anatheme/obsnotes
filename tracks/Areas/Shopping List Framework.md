@@ -1,0 +1,10 @@
+- (Romaine) Lettuce
+- Broccoli (?)
+- Rice cakes (try soon?)
+- Corn tortillas, for wraps, air fry for nacho chips
+- Potatoes
+- Rice (jasmine or other)
+- Yoghurt (Greek or otherwise)
+- Grass fed beef (halal?)
+- Chicken breast
+- 
