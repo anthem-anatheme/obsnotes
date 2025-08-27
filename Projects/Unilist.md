@@ -1,0 +1,9 @@
+- [ ] 2 Duvet covers
+- [ ] 2x fitted sheet
+- [ ] 2x large towels
+- [ ] 2x small towels
+- [ ] Sliders for floor
+- [ ] bath caddy
+- [ ] Toileteries
+- [ ] Satin pillowcase and bonnet
+- [ ] Clothes hangers
