@@ -1,0 +1,1 @@
+Only a few chapters in but worldbuilding is spectacular so far, loving the dynamics between the characters and finding out about them through the eyes of the protagonist.

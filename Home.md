@@ -22,7 +22,7 @@
 - [[bookmarks/ai-tools|🤖 AI Tools]]
 - [[Medicine|🧬 Medicine]]
 - [[bookmarks/programming|💻 Programming]]
-- [[bookmarks/reading|📚 Reading]]
+- [[reading|📚 Reading]]
 
 ---
 
