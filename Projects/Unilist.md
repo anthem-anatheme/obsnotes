@@ -7,3 +7,9 @@
 - [ ] Toileteries
 - [ ] Satin pillowcase and bonnet
 - [ ] Clothes hangers
+- [ ] Deodorant
+- [ ] Toothpaste
+- [ ] Teethbrush (electric)
+- [ ] Microwave pasta bowl
+- [ ] Air fryer
+- [ ] 
