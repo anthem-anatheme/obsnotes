@@ -1,15 +1,13 @@
-- [ ] 2 Duvet covers
-- [ ] 2x fitted sheet
-- [ ] 2x large towels
-- [ ] 2x small towels
+- [x] 2 Duvet covers
+- [x] 2x fitted sheet
+- [x] 2x large towels
+- [x] 2x small towels
 - [ ] Sliders for floor
 - [ ] bath caddy
 - [ ] Toileteries
 - [ ] Satin pillowcase and bonnet
 - [ ] Clothes hangers
-- [ ] Deodorant
-- [ ] Toothpaste
-- [ ] Teethbrush (electric)
-- [ ] Microwave pasta bowl
-- [ ] Air fryer
+- [ ] Spices (Garlic powder, onion powder, paprika, etc)
+- [ ] sponge on stick
+- [ ] magic whiteboard
 - [ ] 
